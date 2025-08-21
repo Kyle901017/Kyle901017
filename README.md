@@ -1,4 +1,4 @@
-## Welcome to my profile 👋
+## Welcome to My Profile 👋
 
 <h3>😍 Profile Views from 21 August 2025:</h3>
 <a href="https://github.com/Kyle901017">
